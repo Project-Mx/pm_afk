@@ -3,8 +3,5 @@
 
 /AFK [Asnwer]
 
-https://discord.gg/a2qGCjH4
-https://discord.gg/a2qGCjH4
-https://discord.gg/a2qGCjH4
-https://discord.gg/a2qGCjH4
+Preview: https://www.youtube.com/watch?v=8oiK-MwaFTQ
 https://discord.gg/a2qGCjH4
