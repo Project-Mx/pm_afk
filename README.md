@@ -1,5 +1,5 @@
 # pm_afk
-AFK Question Based Timer
+[STANDALONE] AFK Question Based Timer | FiveM Script, ESX
 
 /AFK [Asnwer]
 
